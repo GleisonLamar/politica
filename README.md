@@ -1,0 +1,2 @@
+# politica
+sit de politica
